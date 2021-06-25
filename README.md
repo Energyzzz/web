@@ -87,7 +87,6 @@ https://bit.ly/2T6eOCR
 
 
 
-why are you here
 
 
 
@@ -117,7 +116,6 @@ why are you here
 
 
 
-btw
 
 
 
@@ -145,4 +143,6 @@ btw
 
 
 
-you just got rick rolled
+
+
+
